@@ -1,7 +1,7 @@
 # 𝙺𝙰𝚅𝙸𝙽 MUSIC BOT
 ʜᴇʟʟᴏ,ɪ ᴀᴍ "𝙺𝙰𝚅𝙸𝙽" sᴜᴘᴇʀ ғᴀsᴛ ᴍᴜsɪᴄ ᴘʟᴀʏᴇʀ ʙᴏᴛ ғᴏʀ ᴛᴇʟᴇɢʀᴀᴍ ɢʀᴏᴜᴘs...        ★ᴄʀᴇᴀᴛᴇᴅ ʙʏ★              [SOCIAL MECHANIC](https://t.me/social_mechanic_1997)
 
-### RHYTHM 𝐌𝐮𝐬𝐢𝐜 𝐁𝐨𝐭 ɪꜱ ᴀ ᴛᴇʟᴇɢʀᴀᴍ ᴘʀᴏᴊᴇᴄᴛ ʙᴀꜱᴇᴅ ᴏɴ ᴘʏʀᴏɢʀᴀᴍ ꜰᴏʀ ᴘʟᴀʏ ᴍᴜꜱɪᴄꜱ ɪɴ ᴠᴄ ᴄʜᴀᴛꜱ...
+### KAVIN 𝐌𝐮𝐬𝐢𝐜 𝐁𝐨𝐭 ɪꜱ ᴀ ᴛᴇʟᴇɢʀᴀᴍ ᴘʀᴏᴊᴇᴄᴛ ʙᴀꜱᴇᴅ ᴏɴ ᴘʏʀᴏɢʀᴀᴍ ꜰᴏʀ ᴘʟᴀʏ ᴍᴜꜱɪᴄꜱ ɪɴ ᴠᴄ ᴄʜᴀᴛꜱ...
 
 <p align="center"><a href="https://t.me/tamil_chat_group_1"><img src="https://telegra.ph/file/6caec29bf58337953a4b4.png" width="300"></a></p>
 
